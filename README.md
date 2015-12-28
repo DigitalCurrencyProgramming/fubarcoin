@@ -1,2 +1,2 @@
-[FUBAR](http://www.urbandictionary.com/define.php?term=fubar) Coin
+[FUBAR](http://www.urbandictionary.com/define.php?term=fubar) Coin (FBR)
 
